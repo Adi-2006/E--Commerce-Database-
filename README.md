@@ -259,7 +259,7 @@ Through this revision, I strengthened my understanding of:
 
 ## 🤝 Let's Connect
 
-🔗 **LinkedIn:** ["Connect Me ! "](https://www.linkedin.com/in/dwivediaditya4093/)
+🔗 **LinkedIn:** [Connect Me !](https://www.linkedin.com/in/dwivediaditya4093/)
 
 ---
 
